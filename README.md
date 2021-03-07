@@ -1,1 +1,2 @@
 # Pizza
+The main importance of pizza is simply to satisfy a person's hunger. Pizza is a meal that anyone can enjoy, with its many options of crust flavors and toppings. Also, it can easily be served to a large group of people.
